@@ -1,0 +1,1 @@
+# Ayrik_Matemetik_hafta_4
